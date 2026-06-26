@@ -1,2 +1,2 @@
-# AutoDaetailingbyJosh
+# AutoDetailingbyJosh
 Driven by Quality. Defined by Results.
